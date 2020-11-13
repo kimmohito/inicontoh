@@ -1,0 +1,2 @@
+# inicontoh
+Contoh Sahaja
