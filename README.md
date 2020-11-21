@@ -1,2 +1,2 @@
 # inicontoh
-Contoh Sahaja dah edit
+Contoh Edit baru
